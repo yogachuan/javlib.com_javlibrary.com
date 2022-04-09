@@ -51,19 +51,19 @@ JavLibrary 是一个线上日本成人影片图书馆。你可以搜寻并查询
 
 - **JAVLibrary影片内容页评论区截图**，**可以交流本片，或者提供本片正确的种子磁力资源。**
 
-![](https://i.postimg.cc/BvssmVVQ/07.jpg)
+![JAVLibrary影片内容页评论区截图](https://i.postimg.cc/BvssmVVQ/07.jpg)
 
 
 
 - **JAV图书馆侧边连类别选项**
 
-![](https://i.postimg.cc/ncz6ht6D/05.jpg)
+![JAV图书馆侧边连类别选项](https://i.postimg.cc/ncz6ht6D/05.jpg)
 
 
 
 - **选择论坛后进入一般话题区，JAV图书馆的司机都在这里交流，只有汲取各方经验才能成为合格的老司机。**
 
-![](https://i.postimg.cc/SNvHXvht/25.jpg)
+![JAV图书馆的司机都在这里交流](https://i.postimg.cc/SNvHXvht/25.jpg)
 
 
 
