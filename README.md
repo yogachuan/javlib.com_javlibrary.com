@@ -3,10 +3,10 @@
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
-- 更新时间 2022.7月
+- 更新时间 2022.9月
 
 
-**[JAVLibrary图书馆最新地址](https://www.y62x.com)：https://www.y62x.com/**
+**[JAVLibrary图书馆最新地址]：https://www.y62x.com/**
 
 
 
