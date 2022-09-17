@@ -6,9 +6,9 @@
 - 更新时间 2022.7月
 
 
-**[JAVLibrary图书馆最新地址](https://www.F61M.com)：https://www.y62x.com/**
+**[JAVLibrary图书馆最新地址](https://www.y62x.com)：https://www.y62x.com/**
 
-**[JAVLibrary图书馆最新地址](https://www.g60y.com)：https://www.y62x.com/**
+
 
 
 上一个被屏蔽的阵亡域名:  <s>www . F61M . com</s>
