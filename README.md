@@ -3,7 +3,7 @@
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
-##  更新时间 2022.10月
+##  更新时间 2022.11月
 
 
 ## **[JAVLibrary图书馆最新地址]：https://www.X63A.com/**
@@ -33,21 +33,21 @@ JAVLibrary图书馆因某些原因经常被屏蔽...
 
 | 福利APP推荐                                         |                 所有精品                  |             一网打尽！              |                    ⭐⭐⭐⭐⭐                    |
 | --------------------------------------------------- | :---------------------------------------: | :---------------------------------: | :-----------------------------------------: |
-| [91聚合平台app_成人版抖音](https://v.hallo365.top/) | [海量诱惑短视频](https://v.hallo365.top/) | [软嫩萝莉](https://v.hallo365.top/) | [最新国产大厂制片](https://v.hallo365.top/) |
-| [世界AV聚合平台](https://v.hallo365.top/)           |   [脱衣直播区](https://v.hallo365.top/)   | [成熟御姐](https://v.hallo365.top/) |     [空投女友](https://v.hallo365.top/)     |
-| [18+动漫天堂](https://v.hallo365.top/)              |    [黄漫热番](https://v.hallo365.top/)    | [优质中字](https://v.hallo365.top/) |  [91网友交流热论](https://v.hallo365.top/)  |
-| [全国本地楼凤聚合平台](https://v.hallo365.top/)     |    [洗浴按摩](https://v.hallo365.top/)    | [同城约会](https://v.hallo365.top/) |     [同城小姐](https://v.hallo365.top/)     |
-| [91认证-楼凤兼职](https://v.hallo365.top/)          |    [外围模特](https://v.hallo365.top/)    | [高端伴游](https://v.hallo365.top/) |     [情人包养](https://v.hallo365.top/)     |
+| [91聚合平台app_成人版抖音](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/) | [海量诱惑短视频](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/) | [软嫩萝莉](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/) | [最新国产大厂制片](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/) |
+| [世界AV聚合平台](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)           |   [脱衣直播区](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)   | [成熟御姐](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/) |     [空投女友](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)     |
+| [18+动漫天堂](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)              |    [黄漫热番](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)    | [优质中字](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/) |  [91网友交流热论](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)  |
+| [全国本地楼凤聚合平台](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)     |    [洗浴按摩](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)    | [同城约会](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/) |     [同城小姐](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)     |
+| [91认证-楼凤兼职](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)          |    [外围模特](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)    | [高端伴游](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/) |     [情人包养](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)     |
 
 &nbsp;&nbsp;&nbsp;&nbsp;
 
 | 老司机汇集地                          |                **18+必选飙车地！**                 |                 情趣圈子人气爆棚                 |                    ⭐⭐⭐⭐⭐                     |
 | --------------------------------------------------- | :------------------------------------------------: | :----------------------------------------------: | :------------------------------------------: |
-| [进入老司机汇集地](https://l.tell365.top/)          |    [老司机交流飙车区！](https://l.tell365.top/)    |   [老司机兴趣圈子区！](https://l.tell365.top/)   |     [推特福利姬](https://l.tell365.top/)     |
-| [VR高清大社区圈](https://l.tell365.top/)            | [夫妻交流讨论圈（绿奴多）](https://l.tell365.top/) |     [伪娘交流讨论圈](https://l.tell365.top/)     | [老司机兴趣圈子区！](https://l.tell365.top/) |
-| [无码/有码/中字高清](https://l.tell365.top/)        |   [在线观看区（共三区）](https://l.tell365.top/)   | [恋物癖/SM/变装变性TS圈](https://l.tell365.top/) |    [女优百科大全](https://l.tell365.top/)    |
-| [ACG动漫二次元资源交流圈！](https://l.tell365.top/) | [真实家庭乱论视图交流地](https://l.tell365.top/)→  |            （母子/父女/姐弟/丈母娘）             |      [呦美萝莉](https://l.tell365.top/)      |
-| [进入老司机汇集地](https://l.tell365.top/)          |                                                    |                                                  |                                              |
+| [进入老司机汇集地](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)          |    [老司机交流飙车区！](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)    |   [老司机兴趣圈子区！](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)   |     [推特福利姬](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)     |
+| [VR高清大社区圈](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)            | [夫妻交流讨论圈（绿奴多）](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/) |     [伪娘交流讨论圈](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)     | [老司机兴趣圈子区！](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/) |
+| [无码/有码/中字高清](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)        |   [在线观看区（共三区）](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)   | [恋物癖/SM/变装变性TS圈](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/) |    [女优百科大全](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)    |
+| [ACG动漫二次元资源交流圈！](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/) | [真实家庭乱论视图交流地](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)→  |            （母子/父女/姐弟/丈母娘）             |      [呦美萝莉](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)      |
+| [进入老司机汇集地](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde/)          |                                                    |                                                  |                                              |
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
