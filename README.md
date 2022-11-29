@@ -3,15 +3,15 @@
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
-##  更新时间 2022.11月
+##  更新时间 2022.12月
 
 
-## **[JAVLibrary图书馆最新地址]：https://www.X63A.com/**
+## **[JAVLibrary图书馆最新地址]：https://www.G64W.com/**
 
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
-上一个被屏蔽的阵亡域名:  <s>www . Y62X . com</s>
+上一个被屏蔽的阵亡域名:  <s>www . X63A. com</s>
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
