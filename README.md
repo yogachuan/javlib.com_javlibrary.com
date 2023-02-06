@@ -6,12 +6,12 @@
 ##  更新时间 2023.2月
 
 
-## **[JAVLibrary图书馆最新地址]：https://www.G64W.com/**
+## **[JAVLibrary图书馆最新地址]：https://www.U65W.com/**
 
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
-上一个被屏蔽的阵亡域名:  <s>www . X63A. com</s>
+上一个被屏蔽的阵亡域名:  <s>www . G64W. com</s>
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
